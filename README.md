@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Catcd
+- 👋 Hi, I’m Xavier
 - 👀 I’m interested in you
 - 🌱 I’m currently learning how to get a social life
 - 💞️ I’m looking to collaborate on becoming friends
